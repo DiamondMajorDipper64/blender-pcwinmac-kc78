@@ -1,4 +1,4 @@
-# 
+# Profesional Blender plugins para Mac OS | Turbo Blender plugins para PC Windows. Con activos vinculados y composición — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
